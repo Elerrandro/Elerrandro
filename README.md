@@ -1,5 +1,4 @@
 - 👋 Oi, Eu sou @Elerrandro
-- 👀 Estou buscando meu primeiro emprego!
 - 🌱 Atualmente cursando técnico em informática
 - 😄 Pronome: Ele/dele
 
